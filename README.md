@@ -82,6 +82,7 @@ I am a Data Analyst and undergraduate student specializing in **Statistic enginn
 ---
 
 #### 📊 GitHub Stats
+<div align="center">
 
 ---
 
