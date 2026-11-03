@@ -87,4 +87,4 @@ I am a Data Analyst and undergraduate student specializing in **Statistic enginn
 ---
 
 Thanks for stopping by! 🚀
-*18 y/o building from Managua, Nicaragua to Anthropic*
+*Be better all the day*
